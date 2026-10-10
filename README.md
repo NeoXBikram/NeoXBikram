@@ -1,7 +1,7 @@
 
 <div align="center">
 
-# 👑 I Am the Honored One.
+# 👑 YO
 
 *"Throughout heaven and earth, I alone am the honored one."* ⚡
 
